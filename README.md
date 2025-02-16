@@ -42,7 +42,7 @@ We may update this Privacy Policy if necessary. Any changes will be reflected in
 ## **6. Contact Us**  
 If you have any questions about this Privacy Policy, you can contact us:  
 
-📧 **Email:** krisnil@gmail.com 
+📧 **Email:** krisnil@gmail.com  
 🌐 **Website:** www.linkedin.com/in/krisnil/
 
 ---
