@@ -1,5 +1,5 @@
 ### **Privacy Policy for Scrambled!**  
-**Effective Date:** 2025/02/16
+**Effective Date:** 2025/02/16  
 **Last Updated:** 2025/02/16
 
 **Kristoffer Nilsson** ("we," "us," or "our") respects your privacy. This Privacy Policy explains how we handle your information when you use our **Scrambled!** mobile application (the "App").  
